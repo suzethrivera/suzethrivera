@@ -1,4 +1,5 @@
-![cooltext405013939955990](https://user-images.githubusercontent.com/99761740/155261335-1cfbf147-43f7-4aa7-bb0a-39fd95728a69.gif)
+![cooltext405015127308455](https://user-images.githubusercontent.com/99761740/155261685-c1528f2b-6078-4185-8432-08c72df25462.gif)
+
 
 Mi nombre es Suzeth Rivera, soy estudiante de la Preparatoria Federal Lázaro Cardenas. Tengo 16 años y me gusta mucho la tecnología y la música. 
 Actualmente lo que estucho muchísimo es Selena, Tyler The Creator y Little Jesus. Me gusta jugar videojuegos, más que nada Osu!.
