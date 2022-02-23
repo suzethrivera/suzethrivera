@@ -1,4 +1,4 @@
-![cooltext405015127308455](https://user-images.githubusercontent.com/99761740/155261685-c1528f2b-6078-4185-8432-08c72df25462.gif)
+  ![cooltext405015127308455](https://user-images.githubusercontent.com/99761740/155261685-c1528f2b-6078-4185-8432-08c72df25462.gif)
 
 
 Mi nombre es Suzeth Rivera, soy estudiante de la Preparatoria Federal Lázaro Cardenas. Tengo 16 años y me gusta mucho la tecnología y la música. 
